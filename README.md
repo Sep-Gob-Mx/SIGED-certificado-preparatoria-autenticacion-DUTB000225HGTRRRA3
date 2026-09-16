@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DUTB000225HGTRRRA3
+DUTB000225HGTRRRA3
